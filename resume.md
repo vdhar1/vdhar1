@@ -2,4 +2,8 @@
 
 ## Education
 
-BSCS at Northeastern University 2027
+Northeastern University, Khoury College of Computer Sciences
+
+Candidate: BSCS
+
+Boston, MA Sep 2023 - May 2027
